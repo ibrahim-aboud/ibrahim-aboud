@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ibrahim-aboud
+- 👀 I’m interested in computer science
